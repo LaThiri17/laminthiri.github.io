@@ -1,1 +1,0 @@
-# laminthiri.github.io
